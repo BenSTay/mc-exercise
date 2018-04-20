@@ -1,10 +1,10 @@
 
 
-new feature created by bob, it is wonderful and stuff. :))))
+new feature created by borob, it is wonderful and stuff. :))))
 
-literally anything
-^ haha that was funny Carol. You regret nothing
+literally anythdddding
+^ haha that was funny Carol. You reggrrrgret nothing
 
-OctopUSB - love Busmall <3 
+check out this sweet new code from your BFF and favorite ficticious cow orker Bubbles
 
-check out this sweet new code from your BFF and favorite ficticious coworker Bob.
+snapple is tea?
