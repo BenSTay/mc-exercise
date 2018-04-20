@@ -1,3 +1,6 @@
+
+well this is a story all about how my life got flip-turned upside-down and i'd like to take a minute just sit right there as i tell you how i became the prince of a town called bell air
+
 new feature created by borob, it is wonderful and stuff. :))))
 
 literally anythdddding
@@ -13,3 +16,4 @@ snapple is tea?
 ;^)
 
 My uncle works at nintendo and says that half life three is real!
+
